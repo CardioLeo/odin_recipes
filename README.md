@@ -9,5 +9,9 @@ By finishing this project, I will have demonstrated that I can do some html stuf
 Sky's the limit, you know?
 
 Thanks for reading,
+
 William Z Chadwick
+
 aka CardioLeo
+
+ps. if you like the webpages, consider checking out my blog at PerilousResonance.wordpress.com
